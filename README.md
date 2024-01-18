@@ -1,1 +1,1 @@
-# AppTradeMarket-A-Cloud-Hosted-software-Trading-Platform
+# AppTradeMarket-A-Cloud-Hosted-software-Trading-Platform![AppTradeMarket - demo (1)](https://github.com/candiceKD/AppTradeMarket-A-Cloud-Hosted-software-Trading-Platform/assets/144402516/e6cf6273-e881-4903-b707-c305a2477c24)
